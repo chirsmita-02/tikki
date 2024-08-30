@@ -1,0 +1,2 @@
+# tikki
+knowing gojo satoro
